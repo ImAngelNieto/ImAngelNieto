@@ -1,0 +1,6 @@
+- 👋 Hi, I’m IsAngel
+- 👀 I’m interested in ...
+- 🐔 I really like chicken
+- 🫣 This is my second account
+- 💻 I like to create web pages or CLI applications
+- ✨ I belong to the organization of NoAngel's Lab🐈‍⬛
